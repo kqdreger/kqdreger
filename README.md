@@ -1,7 +1,7 @@
-**✌️ Hi, I'm Kyle and I like computers.**
+**✌️ Hi, I'm KQD and I like computers.**
+
+🇺🇸 [patriot software](https://www.patriotsoftware.com/)
 
 🌎 [dreger.me](https://dreger.me)
-
-📝 [audacious.blog](https://audacious.blog)
 
 👥 [linkedin.com/in/dreger](https://linkedin.com/in/dreger)
